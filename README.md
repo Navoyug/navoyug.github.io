@@ -1,1 +1,1 @@
-# navoyug.github.io
+# Official Site for Navoyug - friendship and beyond
